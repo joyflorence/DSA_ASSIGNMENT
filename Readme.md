@@ -13,6 +13,8 @@ It has its main collaborators under following names;
 
 6.IAN EMURON
 
-7.MR KATUA MARVIN (AS THE TUTOR)
+7.WATNEN ERIC OYWAK
+
+8.MR KATUA MARVIN (AS THE TUTOR)
 
 [LETS EXPLORE]
